@@ -8,4 +8,4 @@ Another thing is his bathroom situation. He has to share it with another room as
 just nasty. Furthermore, his shower is a communal one. He said it has black mold in it and is never cleaned.
 I,m getting ready to look up what diseases black mold causes. And one of his nurses told him that the mold wasn't
 as bad as it was put up to be. Even the state tried to close them down, under a different name which was Lima
-Rehab And Nursing.
+Rehab And Nursing. 
